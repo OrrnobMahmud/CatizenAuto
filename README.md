@@ -1,8 +1,8 @@
 
-Please Sign Up Using [My Refer Link] (https://t.me/catizenbot/gameapp?startapp=r_3943_2024740)
+Please Sign Up Using [My Refer Link](https://t.me/catizenbot/gameapp?startapp=r_3943_2024740)
 
 
-Check My Tutorial [How To Use The Script] (https://t.me/verifiedcryptoairdops/152)
+Check My Tutorial [How To Use The Script](https://t.me/verifiedcryptoairdops/152)
 
 
 ```
